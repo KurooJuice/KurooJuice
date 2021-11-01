@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @KurooJuice
+- 👀 I’m interested in Protect Discord not 
